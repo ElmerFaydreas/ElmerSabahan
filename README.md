@@ -1,2 +1,0 @@
-# ElmerSabahan
-JANGAN TINGU LAMA2
